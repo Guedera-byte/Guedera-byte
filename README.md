@@ -11,7 +11,7 @@
 
 🇧🇷 Brazil · 🎓 UNIFACS · 💻 Software Development
 
-[GitHub](https://github.com/Guedera-byte) · [LinkedIn](SEU_LINKEDIN_AQUI)
+[GitHub](https://github.com/Guedera-byte) · [LinkedIn](https://www.linkedin.com/in/caio-guedes05/)
 
 </div>
 
